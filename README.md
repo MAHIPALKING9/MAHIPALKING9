@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MAHIPALKING9
 - 👀 I’m interested in Coding,Aeronautics
 - 🌱 I’m currently a student in class9 and learning coding at WHJR
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on gaming
 - 📫 How to reach me 
 thapakomal57@gmail.com
 
